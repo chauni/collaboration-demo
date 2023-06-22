@@ -1,1 +1,1 @@
-chauni divine brown
+Chauni D. Brown
